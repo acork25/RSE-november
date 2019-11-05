@@ -6,6 +6,3 @@ Gunpowder, treason and plot
 We see no reason
 Why gunpowder treason
 Should ever be forgot 
-
-
-mistake mistake 
